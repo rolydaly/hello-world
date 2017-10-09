@@ -1,2 +1,2 @@
 # hello-world
-just another repository
+I am newbee 43 yearold programer wannabee
